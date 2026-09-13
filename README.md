@@ -32,7 +32,7 @@ Commercial background
 
 I also bring more than 15 years of experience in strategic partnerships, sales leadership, market development, and go-to-market execution. My work connects technical experimentation with defensible business cases, ecosystem strategy, and real-world deployment.
 
-📍 Toronto, Canada
-🌐 English and French
-🔗 DUJ-FEITH Foundation
-🔗 LinkedIn
+📍 Toronto, Canada  
+🌐 English and French  
+🔗 Website: <https://dujfeithfoundation.org>  
+🔗 LinkedIn: <https://www.linkedin.com/in/isabelle-thivierge-53650a381/>
